@@ -1,4 +1,14 @@
-# Theory behind economy stuffs
+# General writeups
+
+[Valued and Devalued life](https://medium.com/p/valued-perspective-and-devalued-perspective-of-life-2f2c815de978)
+
+[Life is beautiful without softwares](https://medium.com/p/life-is-beautiful-without-softwares-5444cfb77a43)
+
+[Smart people and assertive people](https://medium.com/p/smart-people-and-assertive-people-fed082e6ba6e)
+
+[Don't feed the birds and Gadgets of capitalism](https://medium.com/p/dont-feed-the-birds-and-gadgets-of-capitalism-6914fedbf460)
+
+# India specific economic artciles
 
 [Charging india](https://medium.com/p/charging-india-c319ceed74f4)
 

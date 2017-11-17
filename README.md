@@ -8,7 +8,7 @@
 
 [Don't feed the birds and Gadgets of capitalism](https://medium.com/p/dont-feed-the-birds-and-gadgets-of-capitalism-6914fedbf460)
 
-# India specific economic artciles
+# India specific economic articles
 
 [Charging india](https://medium.com/p/charging-india-c319ceed74f4)
 

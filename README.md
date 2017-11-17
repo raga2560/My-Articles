@@ -8,6 +8,12 @@
 
 [Don't feed the birds and Gadgets of capitalism](https://medium.com/p/dont-feed-the-birds-and-gadgets-of-capitalism-6914fedbf460)
 
+[Milton technique examples](https://medium.com/p/example-of-three-scenarios-using-milton-technique-nlp-e6504b7a3786)
+
+[India super-power or silly-power](https://medium.com/p/india-super-power-or-silly-power-b23fb802ab72)
+
+[Whole world trying to feed america](https://medium.com/p/whole-world-is-trying-to-feed-america-95dd26d989df)
+
 # India specific economic articles
 
 [Charging india](https://medium.com/p/charging-india-c319ceed74f4)
